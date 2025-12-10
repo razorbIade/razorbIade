@@ -10,6 +10,6 @@
 
 ㅤㅤ ㅤ ㅤㅤ ㅤㅤ⋆꙳•̩̩͙❅*̩̩͙‧͙    ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 
-ㅤㅤ [<img src="https://files.catbox.moe/dr7ku0.png" width="60">](https://rentry.co/countries) ㅤ[<img src="https://files.catbox.moe/ead08m.png" width="60">](https://pronouns.cc/@finland)ㅤ[<img src="https://files.catbox.moe/nke5i9.png" width="60">](https://rentry.co/geneva)
+ㅤㅤ [<img src="https://files.catbox.moe/dr7ku0.png" width="60">](https://rentry.co/countries) ㅤ[<img src="https://files.catbox.moe/ead08m.png" width="60">](https://pronouns.cc/@finland)ㅤ[<img src="https://files.catbox.moe/nke5i9.png" width="60">](https://rentry.co/fujodanshi)
 
 
