@@ -1,5 +1,6 @@
-## Hi there 👋
+omg
 
+ ![](https://komarev.com/ghpvc/?username=lustangel&label=gooners&color=F5F3EA&style=solid)
 <!--
 **razorbIade/razorbIade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
