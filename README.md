@@ -10,5 +10,5 @@
 
 <img src="https://file.garden/aI99Y_92ODronQq5/Untitled582_20260722162124.png" width="100"> <img src="https://file.garden/aI99Y_92ODronQq5/ezgif-3af36e9e8d9ea9e0.webp" width="190">
 
-[<img src="https://file.garden/aI99Y_92ODronQq5/Untitled586_20260722163037.png" width="145">](https://rentry.co/dolph) [<img src="https://file.garden/aI99Y_92ODronQq5/Untitled586_20260722163355.png" width="145">](https://pronouns.cc/@dolph)
+[<img src="https://file.garden/aI99Y_92ODronQq5/Untitled586_20260722163037.png" width="145">](https://rentry.co/beleth) [<img src="https://file.garden/aI99Y_92ODronQq5/Untitled586_20260722163355.png" width="145">](https://pronouns.cc/@dolph)
  
